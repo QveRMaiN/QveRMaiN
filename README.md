@@ -2,5 +2,5 @@ I work with servers so if you have any trouble with yours I'm kinda sure I can h
 
 
 CONTACT INFO:
-Discord: .qverr.
-Email: QveRBuissnes@mail.com
+-Discord: .qverr.
+-Email: QveRBuissnes@mail.com
